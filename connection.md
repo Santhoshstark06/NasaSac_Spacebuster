@@ -10,4 +10,4 @@ So this is to make aware that we can explore other planets by observing Earth's 
 
 Using my thesis also they discovered other exciting news which is , that NASA’s Transiting Exoplanet Survey Satellite (TESS) has discovered its first Earth-size planet in its star’s habitable zone, the range of distances where conditions may be just right to allow the presence of liquid water on the surface. Scientists confirmed the find, called TOI 700 d, using NASA’s Spitzer Space Telescope and have modeled the planet’s potential environments to help inform future observations. 
  
-          ### So everything is realated to Our planet Earth and may also we have a frenemies in other exoplanets,we should take care of our Earth .
+  ### So everything is realated to Our planet Earth and may also we have a frenemies in other exoplanets,we should take care of our Earth .
