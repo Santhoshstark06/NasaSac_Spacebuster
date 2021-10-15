@@ -9,5 +9,6 @@ Key factor in Mars’ development is its current lack of atmosphere. The fact th
 So this is to make aware that we can explore other planets by observing Earth's structure, properties, processes, and four and a half billion years of biotic evolution.  Understanding these phenomena is essential to maintenance of life on the planet.  The expanding world population demands more resources; faces increasing losses from natural hazards; and releases more pollutants to the air, water, and land.   Sustaining our existence requires scientific understanding of the natural materials and processes linking the geosphere, hydrosphere, atmosphere, and biosphere.  Life prospers or fails at the surface of the Earth where these environments intersect. 
 
 Using my thesis also they discovered other exciting news which is , that NASA’s Transiting Exoplanet Survey Satellite (TESS) has discovered its first Earth-size planet in its star’s habitable zone, the range of distances where conditions may be just right to allow the presence of liquid water on the surface. Scientists confirmed the find, called TOI 700 d, using NASA’s Spitzer Space Telescope and have modeled the planet’s potential environments to help inform future observations. 
+
  
   ### So everything is realated to Our planet Earth and may also we have a frenemies in other exoplanets,we should take care of our Earth .
